@@ -115,10 +115,7 @@ Our designated copyright agent for notice of alleged copyright infringement can 
 
 **Copyright Agent**  
 Slate Chat, Inc.  
-[Address]  
-[City, State ZIP]  
 Email: copyright@slatechat.com  
-Phone: [Phone Number]
 
 ## 6. THIRD-PARTY SERVICES AND CONTENT
 
