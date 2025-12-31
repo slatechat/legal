@@ -1,7 +1,7 @@
 # TERMS OF SERVICE
 
-**Effective Date: October 14, 2025**  
-**Last Modified: October 14, 2025**
+**Effective Date: January 1, 2025**  
+**Last Modified: December 31, 2025**
 
 ## 1. INTRODUCTION AND ACCEPTANCE OF TERMS
 
