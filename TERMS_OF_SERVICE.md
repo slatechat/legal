@@ -115,7 +115,7 @@ Our designated copyright agent for notice of alleged copyright infringement can 
 
 **Copyright Agent**  
 Slate Chat, Inc.  
-Email: copyright@slatechat.com  
+Email: copyright@peretas.live
 
 ## 6. THIRD-PARTY SERVICES AND CONTENT
 
